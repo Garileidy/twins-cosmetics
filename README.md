@@ -1,2 +1,2 @@
 # twins-cosmetics
-creado por lorennys y Garileidy
+craado por Lorennys y Garileidy
